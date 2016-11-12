@@ -1,4 +1,4 @@
-This is an Open Sourced Code of Ethics for Racial Unity -- Sign the pledge, join our organization, and represent the people who believe in acceptance and equality of all races  
+This is an Open Sourced Code of Ethics for Racial Unity -- Sign the pledge, join our organization (in progress!), and represent the people who believe in acceptance and equality of all races  
 ### 1. Our Values  
 1. We decide to view all races equally.  
 2. We refuse to use discrimination to retaliate against discrimination
