@@ -6,3 +6,8 @@ This is an Open Sourced Code of Ethics for Racial Unity -- Sign the pledge, join
 
 ### 2. Concrete Actions We Agree To TAke  
 1. We decide to fight racial discrimination as we encounter it in our daily lives.
+
+
+
+### Resources
+* https://chartwellwest.com/2016/11/12/what-now/
